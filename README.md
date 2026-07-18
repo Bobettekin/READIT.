@@ -15,7 +15,7 @@
 
 • I like talking alot, i can mostly tak abt about anything and evrything .
 
-• maybe a Dyle Yume, still thinking abt it, but might aswell call myself one ! (idm doubles int anytime !)  
+• dyle yume ! idm doubles int anytime !  
 
 • any ship can int btw i don't mind what or any kind yo have  !!
 

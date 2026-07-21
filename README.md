@@ -23,6 +23,3 @@
 • im am offtab offten. whispering me to grab my attention may be a better opption.
 
 • QWEL SUPPORTERS / DEFENDERS DNI AT ALL COSTTTTTT.
-
-
-if seeing me, (another bobette kin) other than MsCarolynne at spawn point angers you or even makes you uncomfortable in any sorta way possible. im really sorry, i never wanted to look like the "better bobette" there. im not even at spawn point often i'm only around there because my friends are. (I hope you guys somewhat understand this.)
